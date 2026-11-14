@@ -1,4 +1,4 @@
-<img width="1103" height="861" alt="Re HeadAche - Ver 2" src="https://github.com/user-attachments/assets/5284d315-bbd9-4c3a-97be-495f47ea7e3e" />
+<img width="2187" height="1475" alt="The Other End - Comic Style Cover" src="https://github.com/user-attachments/assets/b2c5a219-d027-4ed5-998a-a50fc1127bd5" />
 
 
 
